@@ -1,0 +1,2 @@
+# Dumbledore
+Political Ideology
